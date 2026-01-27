@@ -1,5 +1,5 @@
 ## Hi, I'm Horace 👋
-- ❤️ I'm 17 and I'm passionate about space, coding, technology, math, physics, and engineering. In my free time, I think, read, code, design / 3d print objects and robots, play guitar, do acting, and skateboard.
+- ❤️ I'm 18 and I'm passionate about space, coding, technology, math, physics, and engineering. In my free time, I think, read, code, design / 3d print objects and robots, play guitar, and skateboard.
 
 - 🕸️ Website: **[horacehoff.com](https://horacehoff.com)**
   
